@@ -2,14 +2,11 @@
 
 
 
-
 First atempt
 
 
 
-
 Hi. This is me trying new hobby.
-
 
 
 
